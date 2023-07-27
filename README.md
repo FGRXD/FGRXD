@@ -25,7 +25,7 @@ Gw bukan hacker tod hanya manusia biasa noob dalam segala hal, ayo belajar baren
 
 ### Let's connect!
 <p>
-    <a href="https://www.youtube.com/channel/UCme204gftypglXk2vJiInhA" target="blank"><img src="https://img.shields.io/badge/INSTAGRAM%3A-FGR-%20XD-red" /></a>
+    <a href="https://instagram.com/only.fgr444?igshid=MzRlODBiNWFlZA==" target="blank"><img src="https://img.shields.io/badge/YOUTUBE%3A-FGR%20XD-red" /></a>
     <img src="https://img.shields.io/youtube/channel/subscribers/UCzl4me0YC0wS6CW94Al4wJQ?style=social" /><br>
     <a href="https://wa.me/6285231200267?text=Halo%20gw%20real%20pemilik%20instagram%20F20%FGR-XD" target="blank"><img src="https://img.shields.io/badge/Whatsapp-Klik%20untuk%20hubungi%20gw-green" /></a></br>
 </p>
